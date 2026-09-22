@@ -1,7 +1,7 @@
  <p align="center"><img width="140" src="https://komarev.com/ghpvc/?username=pestyywestyy&label=JAOBA+FINDERS&color=e49217" alt="views count">
  <p align="center"><img width="240" src="https://i.pinimg.com/736x/91/5d/9c/915d9ca8e978a62ecf5ecbd34244728b.jpg" alt="Story pin image"/>
 <p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery06/dd433dd4.png?v=3fc8f5cd" alt="Untitled"/> 
-$\Large\color{#e49217}{\textsf{Please sign my ata and check my toyhouse/strawpage}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/341d5432-163b-444b-ac6f-2ee4b53b7711" />
+$\Large\color{#e49217}{\textsf{Please sign my ata}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/341d5432-163b-444b-ac6f-2ee4b53b7711" />
 
 
 <p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery03/32e9614e.gif?v=3fc8f5cd" alt="Untitled"/> 
@@ -9,7 +9,7 @@ $\color{#1d29be}{\textsf{thiscanbefoundonmyinfoontheside}}$ <img width="20" heig
  
 <p align="center"><img width="220" alt="image" src="https://github.com/user-attachments/assets/7a1a29d5-f336-4c30-9b26-56c45da60df1" />
  
-<p align="center"> $\color{#e69a3f}{\textsf{If I am seen in my jaoba skin, please only refer to me as jaoba and the prns it/its or just my name.}}$
+<p align="center"> $\color{#e69a3f}{\textsf{Hi! This is a character alt. lol}}$
 
 <p align="center"> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e21d206f-3112-49dd-9864-1d01b711da2f" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e534a327-0a45-4274-a52b-61e61a3a44dc" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/36119dd2-6e3d-46d4-af48-726786133d53" />
